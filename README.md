@@ -1,2 +1,2 @@
-# Ph-H-ng-S-n
+# PHS
 Profile
